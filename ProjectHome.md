@@ -1,0 +1,1 @@
+Game about FoxConn and working conditions that led to rash of suicides in 2010.
